@@ -21,4 +21,5 @@ Included materials:
 - Marketing Handbook (CAUSEJAM HANDBOOK..pdf)
 - Marketing Plan (CAUSE JAM MARKETING PLAN PDF.pdf)
 - Content Calendar
+- Promo Materials
 - Team Acceptance Materials (Cause Jam Acceptance Letter. (1).pdf)
