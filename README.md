@@ -19,6 +19,6 @@ Developed and managed a marketing team to support CauseJam initiatives, establis
 ## Project Documentation:
 Included materials:
 - Marketing Handbook (CAUSEJAM HANDBOOK..pdf)
-- Marketing Plan
+- Marketing Plan (CAUSE JAM MARKETING PLAN PDF.pdf)
 - Content Calendar
 - Team Acceptance Materials (Cause Jam Acceptance Letter. (1).pdf)
